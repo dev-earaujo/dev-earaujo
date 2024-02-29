@@ -1,5 +1,4 @@
 # 💫 About Me:
-Hi, I'm José Eduardo!
 📚 - I'm currently studying Informational System<br>🖥️ - I am always looking for a way to get better and absorb more knoledge 
 
 
